@@ -1,0 +1,1 @@
+# akugataumaungomongapalagi.github.io
